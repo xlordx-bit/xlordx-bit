@@ -8,7 +8,7 @@ Email Me 👉 ✉️ **rakagarwal098@gmail.com** For Collaboration/Project or An
 - 👯 **I’m looking to collaborate on:** GEN AI
 - 🤔 **I’m looking for help with:** NONE
 - 💬 **Ask me about:** Collaboration
-- 📫 **How to reach me:** rakagarwal098@gmail.comEnter your email here
+- 📫 **How to reach me:** rakagarwal098@gmail.com
 - 😄 **Pronouns:** Pranjal
 - ⚡ **Fun fact:** I Love AI
 
